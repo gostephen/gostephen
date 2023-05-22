@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gostephen
-- 🌱 I’m currently learning AI & IT at The University of Melbourne
+- 🌱 I’m currently learning AI at The University of Melbourne
 - 📫 You can reach me through my website at https://stephengo.com/
 
 <!---
