@@ -21,11 +21,6 @@ Experienced in driving product growth and developing comprehensive analytics das
 ### Let's Connect!
 I'm always open to discussing technology, data, and innovative projects. Feel free to reach out for collaborations or just a chat about the latest in tech.
 
----
-
-📧 Email me at [contact@stephengo.com](mailto:contact@stephengo.com)
-
----
 
 
 
